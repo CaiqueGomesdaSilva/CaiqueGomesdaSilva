@@ -1,6 +1,6 @@
 ## Hi, my name is Caique Gomes, i'm a Dev Full Stack !🧠💻
 
-• 📅 09/04/2001 - 21 Years
+• 📅 09/04/2001 - 22 Years
 
 • 💻 Electronics technician (ETEC Horácio Augusto da Silveira - São Paulo, SP)
 
